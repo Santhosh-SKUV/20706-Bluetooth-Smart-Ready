@@ -1,0 +1,1 @@
+# 20706-Bluetooth-Smart-Ready
